@@ -1,0 +1,1 @@
+Hi, ini hari ketiga ku belajar di ZEAL INDONESIA
